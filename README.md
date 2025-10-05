@@ -1,3 +1,3 @@
 ## My Resume
 
-[Resume Preview](resume_preview.png)  
+[Resume Preview](NinaErvin_Resume_oct_2025.png)  
